@@ -1,7 +1,7 @@
 ![](https://i.pinimg.com/originals/f8/0a/65/f80a65ade3c1bc7ec09be5021f06d4ab.gif)
 ![](https://64.media.tumblr.com/0e87e08a7a9b3d3f8276fa4950a22e36/15d2e4c549cf5f51-8c/s640x960/799c5a3b48ad51f0edf4e2b89030279e3cd5fb1c.pnj)
 
- hi lol pls int w me i dont bite ![](https://yokai.crd.co/assets/images/gallery19/b5db3073.gif?v=b4df531c) also link for [guestbook lol](https://scarybitches.123guestbook.com/)
+ hi lol pls int w me i dont bite ![](https://yokai.crd.co/assets/images/gallery19/b5db3073.gif?v=b4df531c) also link for [guestbook lol](https://scarybitches.atabook.org)
  
  might be offtab or away so uh whisper before interacting
  
